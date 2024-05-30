@@ -1,1 +1,1 @@
-its only for learn
+It's Repo only for learning purposed..
